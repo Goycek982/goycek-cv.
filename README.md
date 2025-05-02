@@ -1,1 +1,0 @@
-# goycek-cv.
